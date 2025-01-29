@@ -23,6 +23,7 @@ I enjoy playing basketball, listening to music, and hiking.
 **Connect With Me:**
 
 * GitHub: https://github.com/Kin175
+* www.linkedin.com/in/gregory-shine
 * Email: tierreshine@gmail.com
 
 **Open to Opportunities:**
